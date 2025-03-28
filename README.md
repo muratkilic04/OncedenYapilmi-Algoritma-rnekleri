@@ -1,0 +1,1 @@
+# OncedenYapilmi-Algoritma-rnekleri
